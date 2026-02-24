@@ -1,0 +1,1 @@
+# automate_camp_2026
